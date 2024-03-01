@@ -1,0 +1,2 @@
+# designart
+seni itu hidup
